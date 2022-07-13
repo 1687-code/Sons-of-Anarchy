@@ -1,0 +1,9 @@
+# Introdução
+
+***Sons of Anarchy*** (no Brasil , **Filhos da Anarquia**) é uma série de televisão dramática e de ação norte-americana criada por Kurt Sutter que foi ao ar de 2008 a 2014. Ela segue a vida de um clube de motoqueiros foragidos que opera em Charming, uma cidade fictícia no Vale Central da Califórnia.  A série é estrelada por Charlie Hunnam como Jackson "Jax" Teller, que inicialmente é o vice-presidente e posteriormente o presidente do clube. Depois de descobrir um manifesto escrito por seu falecido pai, John, que anteriormente liderava o MC, ele logo começa a questionar o clube, a si mesmo e seus relacionamentos. Amor, fraternidade, lealdade, traição e redenção são temas consistentes em toda a série.
+
+*Sons of Anarchy* estreou em 3 de setembro de 2008, no canal de televisão FX. A terceira temporada da série atraiu uma média de 4,9 milhões de telespectadores semanais, tornando-se a série de maior audiência da FX na época, superando seus outros sucessos The Shield, Nip/Tuck e Rescue Me. As estreias das temporadas 4 e 5 foram as duas transmissões de maior audiência na história da FX. A sexta temporada foi ao ar de 10 de setembro de 2013 a 10 de dezembro de 2013.A sétima e última temporada da série estreou em 9 de setembro de 2014. O episódio final da série estreou em 9 de dezembro de 2014.
+
+Esta série explorou o vigilantismo, a corrupção governamental e o racismo, e descreveu um clube de motoqueiros fora da lei como uma analogia para a transformação humana. David Labrava, um membro real da filial de Oakland dos Hells Angels, serviu como consultor técnico e também interpretou o personagem recorrente Happy Lowman, o assassino do clube.
+
+Em novembro de 2016, a FX anunciou o desenvolvimento de uma série spin-off, Mayans M.C, que é centrada em torno do clube latino titular, que estreou sua primeira temporada em 2018.

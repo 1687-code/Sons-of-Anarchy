@@ -1,0 +1,3 @@
+# Conceito
+
+Os Sons of Anarchy *SOA* é um clube de motociclistas foras da lei com muitos *chapters* nos Estados Unidos, bem como no exterior. A série mostra os Sons of Anarchy Motorcycle Club Redwood Original, referido pela sigla SAMCRO ou Sam Crow. Esse apelido também se reflete no título original da série, sempre Sam Crow. Redwood está sediada na cidade fictícia de Charming, Califórnia, em um clube ao lado da oficina mecânica Teller-Morrow. Liderados pelo presidente da Clay Morrow, e mais tarde Jax Teller, o clube protege e controla Charming através de relações estreitas, suborno e intimidação violenta.
